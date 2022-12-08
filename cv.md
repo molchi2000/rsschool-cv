@@ -7,7 +7,7 @@
 **About me**  
 I have good skills like a team player and i have too much ambitious for a new work and projects.  
 
-I am looking for growth in a developing company and will give my best
+I am looking for growth in a developing company and will give my best.
 ****
 **Skils**  
 
